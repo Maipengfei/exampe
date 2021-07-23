@@ -1,2 +1,1 @@
-The world just be complicated!
-But I still prefer to believe wonderful things will happen!
+I give all my heart to someone. But the hot heart became cold gradually.
